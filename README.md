@@ -1,4 +1,4 @@
-# Hola, soy Exequiel Miranda 👋
+# Hola, soy Bryan Miranda 👋
 
 </br>
 
